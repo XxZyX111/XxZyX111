@@ -1,5 +1,5 @@
 # 💫 About Me:
-18 | BINUS University 4th Semester Undergraduate | Video Editor 🎬 | Rookie Software Engineering Programmer | Enjoying my life while it lasts ✌️
+Hey there, my name is Aqeela Kurniawan. I'm an 18 year old 4th semmester undegraduate student at BINUS Univeristy studying Computer Science. I'm also a decent video editor mostly using Microsoft Clipchamp or Capcut as my go to. I yearn to become a software developer/application maker in the future and i hope i can learn more than just coding in the future. Until next time friends!
 
 
 ## 🌐 Socials:
